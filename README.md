@@ -1,3 +1,5 @@
+<img width="1312" height="1199" alt="WhatsApp Image 2026-09-25 at 22 09 47" src="https://github.com/user-attachments/assets/97a57b1a-f788-4c85-b825-9274e7e422a6" />
+<img width="1312" height="1199" alt="WhatsApp Image 2026-09-25 at 22 09 47" src="https://github.com/user-attachments/assets/275c6954-05dc-4599-8f7a-6461ee84c237" />
 # 🌾 KisanMitr
 
 ### Connecting Farmers with Better Market Opportunities
